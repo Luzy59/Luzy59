@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Luzy59
 - 👀 I’m interested in human communication.
-- 🌱 I’m currently learning that covid rally torn me off, just hard no to have a human connection.
-- 💞️ I’m looking to collaborate on ...
+- 🌱 I’m currently learning that covid really torn me off, just hard no to have a human connection.
+- 💞️ I’m looking to have a human socializing with me.
 - 📫 How to reach me via tiktok @luzman99
 
 <!---
